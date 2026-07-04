@@ -1,1 +1,0 @@
-# Quatum-x-cuduongdz
